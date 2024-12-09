@@ -1,0 +1,1 @@
+# LP__ICT9Ruby_Q2SW2_Galope_Cara
